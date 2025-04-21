@@ -5,7 +5,7 @@ FOR THE EMPEROR!!!
 
 - 🌱 I’m currently learning AI
 
-- 📫 How to reach me: noreach
+- 📫 How to reach me: vinh2901200@gmail.com
 - 😄 Pronouns: logical_psycho
 - ⚡ Fun fact: Truth ain't fun
 
